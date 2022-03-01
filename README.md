@@ -1,1 +1,0 @@
-# MuhasebeUygulas-_Guncelleme
